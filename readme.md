@@ -1,1 +1,0 @@
-hello dosto mey pritika gurung
